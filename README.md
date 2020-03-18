@@ -1,1 +1,0 @@
-lastai lyang vayo
